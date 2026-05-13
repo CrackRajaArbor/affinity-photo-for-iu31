@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Photo for macOS with elite Affinity Photo for macOS Brush Pack | version history + UI themes, the #1 brush. Includes version history and UI themes for a smoother
 
 
 
